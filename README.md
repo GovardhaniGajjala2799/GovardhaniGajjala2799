@@ -1,0 +1,4 @@
+- 👋 Hi, it's me Govardhani
+- 👀 Meet me as a DATA ANALYST
+- 📫 Reach me at govardhani2799@gmail.com
+- ⚡ From shadows to the stars!!!
